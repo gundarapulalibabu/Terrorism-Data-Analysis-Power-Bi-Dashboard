@@ -26,10 +26,3 @@ I'm always eager to connect with fellow data enthusiasts and hear your thoughts.
 Instagram: monti.prem
 LinkedIn: premmandal
 GitHub: montiprem
-
-hashtag#powerbi 
-hashtag#terrorism 
-hashtag#dataanalysis 
-hashtag#globalterrorism
-hashtag#dashboard 
-PREM MANDAL MeriSKILL InternCareer 
